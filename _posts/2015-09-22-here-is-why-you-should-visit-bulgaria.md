@@ -56,4 +56,4 @@ Urdini Lakes area, Rila Mountain
 ![Bulgaria Sinemorets](/assets/images/here-is-why-you-should-visit-bulgaria/beach.jpg)
 Bulgaria Sinemorets by Artur Malinowski, licensed under (CC BY 2.0)
 
-## What are your reasons to visit Bulgaria?
+### What are your reasons to visit Bulgaria?

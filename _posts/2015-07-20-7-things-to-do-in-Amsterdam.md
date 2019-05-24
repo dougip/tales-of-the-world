@@ -47,4 +47,4 @@ Beer tasting @ Brouwerij ‘t IJ
 
 From local produce and fresh stroopwafel through to bike gear, reasonably priced French chickens and Indian spices– there is something for everybody. Albert Cuyp is the most popular one (open daily except Sundays), Ten Katemarkt is likely the cheapest, Noordermarkt is in a very charming area of the city with lots of little cafes and bars around.
 
-## Where do you like hanging out in Amsterdam? Share in the comments below!
+### Where do you like hanging out in Amsterdam? Share in the comments below!
